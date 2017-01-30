@@ -1,0 +1,2 @@
+# What-do-we-learn-about-love-and-relationships-from-The-Eternal-Sunshine-of-the-Spotless-Mind-
+Even if there comes some artificial modern way to erase our painful memories of the person we loved, if you both are meant to be together nothing can separate you from each other. This movie tells us the value of true love. Even when two persons don't like each other's personalities , know their weakness they are inseparable.
